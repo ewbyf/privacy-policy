@@ -1,1 +1,1 @@
-# privacy-policy
+# Privacy Policy for Mr. Recipe
